@@ -1,6 +1,6 @@
 <div align="center">
 
-# 👋 SALOM! MEN SHO HJAHON
+# 👋 SALOM! MEN SHOHJAHON
 
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&pause=1000&color=00F7FF&center=true&vCenter=true&width=650&lines=I'm+Shohjahon;Nickname%3A+DARKNES;Future+Developer;Gamer+%7C+Creator+%7C+Tech+Lover" />
 
