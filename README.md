@@ -185,6 +185,13 @@
 
 <div align="center">
 
+Allox bo'lsin robbingiz
+Jannat bo'lsin uyingiz
+Islom bo'lsin diningiz
+Baxtga to'lsin umringiz 
+Baxtli o'tsin kuningiz Bu o'tginchi dunyoda
+Alloh bo'lsin do'stingiz!😊❤️‍🩹☪️
+
 # ⚡ DARKNES ⚡
 
 ### LEARN • BUILD • CREATE • REPEAT
